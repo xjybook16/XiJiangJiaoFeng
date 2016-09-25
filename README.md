@@ -1,5 +1,5 @@
 <h1>習江三次生死交鋒</h1>
-<a id="008" href="https://d6rojcwfw6e31.cloudfront.net/cn/book/習江三次生死交鋒-86283711?m=https://d6rojcwfw6e31.cloudfront.net&amp;u=1003wechat" title="習江三次生死交鋒"><img border="0" alt="習江三次生死交鋒" src="https://cloud.githubusercontent.com/assets/20497761/18775017/c0a84584-812c-11e6-96ca-ff11ee3ed002.jpg" style="max-width:100%;"></a>
+<a id="008" href="https://d6rojcwfw6e31.cloudfront.net/cn/book/習江三次生死交鋒-86283711?m=https://d6rojcwfw6e31.cloudfront.net&amp;u=1003wechat" title="習江三次生死交鋒"><img border="0" alt="習江三次生死交鋒" src="https://cloud.githubusercontent.com/assets/20497761/18813104/c9f4e0f0-82b9-11e6-88d2-c5e0fa82655c.jpg" style="max-width:100%;"></a>
 
 <h2>内容介绍：</h2>
 
