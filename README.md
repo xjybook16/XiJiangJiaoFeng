@@ -29,7 +29,7 @@
 
 习江之间的第三次生死交锋从2014两会前开始，从昆明血案，到香港暗杀，从新疆火车站到广州火车站，一次次的血案、一条条人命，甚至战火延烧到海外。
 
-<p><img src="https://cloud.githubusercontent.com/assets/19661274/16099611/82086396-339c-11e6-89e2-241320f5f270.png"></p>
+<p><img src="https://cloud.githubusercontent.com/assets/20497761/18823715/69f77696-838a-11e6-82f7-6c9694358fd1.png"></p>
 <p><b>购书请访问 <a id="024" href="https://d6rojcwfw6e31.cloudfront.net/cn/book/習江三次生死交鋒-86283711?m=https://d6rojcwfw6e31.cloudfront.net&amp;u=1003wechat"> 新纪元商城</a></b>
 <p><a href="https://d6rojcwfw6e31.cloudfront.net/cn/shop-QA?m=https://d6rojcwfw6e31.cloudfront.net&u=1003wechat"><b>购物问答</b></a>
 <p>實體書：台湾：诚品、金石堂、博客来网络书店、机场等各大书店发售 | 香港/澳门书店及旺角、尖沙咀、铜锣湾、澳门书报摊发售</p>
